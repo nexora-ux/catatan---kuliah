@@ -1,0 +1,1 @@
+[text](<../../../AppData/Local/Packages/5319275A.WhatsAppDesktop_cv1g1gvanyjgm/LocalState/sessions/98EBDD58C83CE306B61855E32FF4EAF06C3AF76E/transfers/2026-22/MAKALAH PENDIDIKAN (ALFAREL ANDIANSYAH GHOZALI_PAI2510009).docx>)
