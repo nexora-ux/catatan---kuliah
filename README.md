@@ -1,3 +1,2 @@
-# catatan - kuliah
-apa pun tentang aku
-hai aku seorang rakyat biasa dari kota kecil
+# Rps-matakuliah-semester3
+hanya manusia biasa-makan nasi
